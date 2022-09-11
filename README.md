@@ -8,4 +8,9 @@
 ## Clip 6 : https://www.youtube.com/watch?v=_I2jk7rILjg
 ## Clip 7 : https://www.youtube.com/watch?v=tduoPHm78OY
 ## Clip 8 : https://www.youtube.com/watch?v=OX2iM-7zXy4
-## Clip 9 :
+## Clip 9 : https://www.youtube.com/watch?v=3mtbYMr7eJA
+## Clip 10 :
+## Clip 11 :
+## Clip 12 :
+## Clip 13 :
+## Clip 14 :

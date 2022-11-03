@@ -12,5 +12,5 @@
 ## Clip 10 : https://www.youtube.com/watch?v=BDTCLInsUUc
 ## Clip 11 : https://www.youtube.com/watch?v=r5CQkRx1E5Y
 ## Clip 12 : https://www.youtube.com/watch?v=2el_ETeCFCA
-## Clip 13 :
-## Clip 14 :
+## Clip 13 : https://www.youtube.com/watch?v=-_ROLIbK_nI
+## Clip 14 : https://www.youtube.com/watch?v=i-vSxV37cJg
